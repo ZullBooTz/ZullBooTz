@@ -1,7 +1,4 @@
-- HAY ALL MEMBER CyberBadDheatH
-- Author = ZullBootz
-- Github = https://github.com/ZullBooTz/ZullBooTz.git
-- Tele   = https://t.me/CyberBadDeatH
+々 IjulTaka || 乂
 -  if there is a problem please call me 👍
 
 <!---
